@@ -1,0 +1,1 @@
+Hi! I'm Aneka Happer, a math and computer science student at UNC Chapel Hill. I like hikes, coding, jokes, art, chocolate, and the ocean. If you want to contact me shoot me an email at: aneka09@gmail.com!
